@@ -6,7 +6,7 @@ Student Computer Engineering
 
 * 🌍  I'm based in Pattani, Thailand
 * ✉️  You can contact me at [alifriduwan.a@gmail.com](mailto:alifriduwan.a@gmail.com)
-* ⚡  I'm a loser about LOVE :(
+
 
 ### Skills
 
